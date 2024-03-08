@@ -1,1 +1,1 @@
-Village connect
+Village connect project
